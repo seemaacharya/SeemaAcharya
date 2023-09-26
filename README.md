@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **seemaacharya321@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/seemaacharya3636/details/featured/1635541779291/single-media-viewer/?profileId=ACoAADHWEDMB2Om0X6FCe1B2i8kqqax1aCXgEvE](https://www.linkedin.com/in/seemaacharya3636/details/featured/1635541779291/single-media-viewer/?profileId=ACoAADHWEDMB2Om0X6FCe1B2i8kqqax1aCXgEvE)
+- 📄 Know about my experiences [https://www.linkedin.com/in/seemaacharya3636/details/featured/1635542334166/single-media-viewer?type=DOCUMENT&profileId=ACoAADHWEDMB2Om0X6FCe1B2i8kqqax1aCXgEvE&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_featured_details%3Bs4H9ycPeSLyNH4fQ%2BMrjqg%3D%3D](https://www.linkedin.com/in/seemaacharya3636/details/featured/1635542334166/single-media-viewer?type=DOCUMENT&profileId=ACoAADHWEDMB2Om0X6FCe1B2i8kqqax1aCXgEvE&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_featured_details%3Bs4H9ycPeSLyNH4fQ%2BMrjqg%3D%3D)
 
 - ⚡ Fun fact **I think I am funny**
 
